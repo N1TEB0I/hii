@@ -13,5 +13,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀"**Just Monika.**" <img src=https://64.media.tumblr.com/417eb1a9ec823cfc4aee1a22f40ed7e8/a7847445d679bd37-e3/s75x75_c1/f169323dace382c195873bf40cced805f4683347.gifv width:>
 
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tumblr_f4dd8890cebbf8565049335934e36216_243ba861_100](https://github.com/user-attachments/assets/7612478c-5ac0-4e17-a74a-1202ba0315ec) ![tumblr_67d2de05ed2d0930a674b79e3f153ef5_be2f91ae_100](https://github.com/user-attachments/assets/0d7b157d-3bb6-41fa-86df-28a7dca2d72b)
+
 
 
