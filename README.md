@@ -5,11 +5,4 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src=https://64.media.tumblr.com/59c49948971923b6bf0ddec1122a253d/7563c205d7619f44-2f/s400x600/5bd5bc0a932b0fef5e17999378d9b38ca9a3db95.gifv width= "400px">
-
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src=https://64.media.tumblr.com/3d07a0c5bf0ea7c5f59fd161e25091b2/643588473abebf49-0c/s250x400/00ca90fa4b3527918df1861cc4e2150aeb9e61d9.gifv width:>
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀wip idk
+⠀⠀⠀<img =https://64.media.tumblr.com/f01494a1399c1110ee2ba0359fbdfd35/afce9ac8d7a51275-03/s500x750/2922c722534117f87b074bf5e3623b7b7cbf52b2.gifv width:"400px">
