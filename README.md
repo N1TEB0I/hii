@@ -6,3 +6,5 @@
 
 
 
+<a href="https://discordid.netlify.app/?id=873902369354706945"><img src="![image](https://github.com/user-attachments/assets/50a333e3-3b08-4fb3-878d-1e589f27294a)
+></img></a>
